@@ -15,4 +15,4 @@
 
 ## 📫 Contact Me
 - Email: aksysevo58@gmail.com 
-- LinkedIn: [Zeycan Aksoy](www.linkedin.com/in/zeycan-aksoy-45bb1b290)  
+- LinkedIn: [Zeycan Aksoy](https://www.linkedin.com/in/zeycan-aksoy-45bb1b290/)  
